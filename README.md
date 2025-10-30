@@ -7,7 +7,7 @@
                                     Something to do while we try to recall how we met"
 - **Reason:** I remember her from the song.
 
-## 1.Those Eyes
+## 2.Those Eyes
 - **Artist:** New West
 - **Favorite lyrics of the song:** "Cause all of the small things that you do,
                                      Are what remind me why I fell for you"
