@@ -11,6 +11,6 @@
 - **Artist:** New West
 - **Favorite lyrics of the song:** "Cause all of the small things that you do"
                                     "Are what remind me why I fell for you"
-- **Reason:** I dedicated this for her.
+- **Reason:** I dedicated this song for her.
 
 > "We love songs because they say what our hearts can't." 🎵
